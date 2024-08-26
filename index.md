@@ -2,4 +2,4 @@
 
 - The relaxed pace and nature of the course
 - The practical skills we learn from it
-- Oppurtunity to learn from upperclassmen
+- Opportunity to learn from upperclassmen
